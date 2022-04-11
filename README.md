@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ASALIX6
-- 👀 I’m interested in nothing
+- 👀 I’m interested in Gaming
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing too
 - 📫 How to reach me IDK
